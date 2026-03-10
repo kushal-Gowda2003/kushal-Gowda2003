@@ -8,7 +8,7 @@
 - 💼 Currently **President** of Skill Forge Club  
 - 🚀 Interested in **Web Development, Cloud, and AI-powered solutions**  
 - ✍️ I also enjoy writing, creating sayings, and exploring mythology  
-- 📄[My Resume](https://drive.google.com/file/d/1Kzc2Pt18JfAGz4wZc_qPvhFqkNMC5IeQ/view)
+- 📄[My Resume](https://drive.google.com/file/d/1LFQfXbg45jAlRHz17duPZGlcJRFSFZNR/view?usp=drive_link)
 
 ---
 
